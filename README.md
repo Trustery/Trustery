@@ -1,2 +1,2 @@
-Discord: Trustery#3332
-Reddit: Trustery
+- Discord: Trustery#3332
+- Reddit: Trustery
